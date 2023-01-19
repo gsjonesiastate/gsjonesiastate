@@ -7,3 +7,4 @@
 - 📫 How to reach me: gsjones@iastate.edu (630) 841 8844
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: My LetterBoxD is gmoney17 and I post funny/sattirical movie reviews
+- 🏋️ I go to Jim
